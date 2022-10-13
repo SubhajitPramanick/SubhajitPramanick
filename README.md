@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @SubhajitPramanick
-- 👀 I’m interested in coding and wave development project
+- 👀 I’m interested in coding and web development project
 - 🌱 I’m currently learning in Academy of Technology
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me Phone Number: 8250223120, email-id:subhapramanick767@gmail.com
